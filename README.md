@@ -1,4 +1,6 @@
 # DTC Wellness Testing Market Industry Report
+![DTC Wellness Testing Market](https://github.com/user-attachments/assets/2d1960e2-3929-4efa-a16a-1fa4ff58c10d)
+
 
 
 The Direct‑to‑Consumer (DTC) Wellness Testing Market has emerged as one of the fastest‑growing segments within the broader consumer health and diagnostics landscape. Driven by rising consumer demand for personalized health insights, rapid adoption of at‑home testing modalities, and digital health integration, this market is attracting significant capital, spawning new entrants, and reshaping traditional clinical pathways. Recent regulatory updates and broader wellness trends reinforce both opportunity and complexity for investors and supply chain stakeholders.
